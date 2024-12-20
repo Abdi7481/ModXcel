@@ -1,0 +1,1 @@
+how to get modxcel.exe. first of you go to the home page and you should find a button that says code click on it and, press install zip folder. after that extract the folder by right clicking on the item and pressing extract to and just press ok, suddenly open it and you have the executor 
